@@ -1,5 +1,5 @@
 # La vérité sur la musique
 ## meilleur album du monde de tous les temps
-PNL - deux frères
+Vitalic - Rave Age
 ## meilleur groupe live du monde
-Carla Bruni
+Salut c'est cool
