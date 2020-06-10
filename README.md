@@ -1,5 +1,5 @@
 # La vérité sur la musique
 ## meilleur album du monde de tous les temps
-PNL - deux frères
+Daughter - Not to Disappear
 ## meilleur groupe live du monde
-Carla Bruni
+idk
